@@ -11,7 +11,7 @@ p/>
   <tr>
     <td align="center" width="50%">
       <p align="center">
-  <img src="https://files.catbox.moe/q4x8qy.jpg"
+  <img src="https://files.catbox.moe/oeo4wa.png"
   width="30%"
   align="right"
 p/>

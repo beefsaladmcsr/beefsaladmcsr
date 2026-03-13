@@ -21,6 +21,7 @@ p/>
  
  ✶  | Zel/Zee/Zee-zee/Zelya | he/they/it/z | ✶
    
+<p><b>✶ please don't copy our skins, and ask for inspo if you want it ✶<p><b>
 <p><b>very bad longterm memory, I might lowkenuinely forget you if we don't talk/int much we're very sorry!!<p><b>
 <p></p> I go by many names and pronouns, and at times mix them in sentences, please don't be confused! <p>
 <p></p> Kind of socially awkward, but we try not to be! <p></p>

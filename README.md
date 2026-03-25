@@ -5,7 +5,7 @@
   align="center"
 p/>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Kings&size=17&pause=1000&color=A1CF6B&width=435&lines=Lord+I'm+five+hundred+miles+from+my+home.+.+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Kings&size=17&pause=1000&color=A1CF6B&width=435&lines=Scattered+'cross+my+family+line+.)](https://git.io/typing-svg)
 
 <table>
   <tr>

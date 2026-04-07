@@ -15,8 +15,7 @@ p/>
   <tr>
     <td align="center" width="50%">
       <p align="center">
-p/>
-        
+    
 <p><b>The power of green compels you<p><b>
  
  ✶  | Zel/Zee/Zee-zee/Zelya/Iriss | he/they/it/z | ✶

@@ -1,13 +1,4 @@
 <hr/>
-<p align="center">
-  <img src="https://files.catbox.moe/h9komt.jpg"
-  width="50%"
-  align="center"
-p/>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Kings&size=17&pause=1000&color=A1CF6B&width=435&lines=Scattered+'cross+my+family+line+.)](https://git.io/typing-svg)
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Kings&size=17&pause=1000&color=A1CF6B&width=435&lines=I'm+so+good+at+telling+lies+.)](https://git.io/typing-svg)
 
 <p><b>THIS README IS UNDER RECONSTRUCTION!!<p><b>
 
@@ -38,9 +29,3 @@ p/>
 <hr/>
 <p align="center">
 <hr/>
-
-<p align="center">
-  <img src="https://files.catbox.moe/h9komt.jpg"
-  width="50%"
-  align="center"
-p/>

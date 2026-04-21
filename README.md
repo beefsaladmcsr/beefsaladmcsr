@@ -21,6 +21,13 @@ $\color{#9C0B3D}{\text{✶ 𝔭𝔩𝔢𝔞𝔰𝔢 𝔡𝔬𝔫'𝔱 𝔠𝔬�
 
 $\color{#9E27A7}{\text{ ✶ 𝔉𝔢𝔢𝔩 𝔣𝔯𝔢𝔢 𝔱𝔬 𝔦𝔫𝔱 𝔞𝔫𝔡 𝔠+𝔥! ℑ 𝔡𝔬𝔫'𝔱 𝔟𝔦𝔱𝔢✶}}$
 
+<hr/>
+<p align="center">
+
+$\color{#9C0B3D}{\text{✶ 𝔉𝔞𝔫𝔡𝔬𝔪𝔰 ✶}}$
+
+$\color{#9E27A7}{\text{✶ 𝔏𝔦𝔣𝔢𝔰𝔱𝔢𝔞𝔩, 𝔘𝔫𝔰𝔱𝔞𝔟𝔩𝔢 𝔘𝔫𝔦𝔳𝔢𝔯𝔰𝔢, ℭ𝔬𝔫𝔱𝔢𝔫𝔱 𝔰𝔪𝔭, 𝔪𝔠𝔰𝔯, 𝔬𝔲𝔱𝔰𝔦𝔡𝔢𝔯𝔰 𝔰𝔪𝔭 ✶}}$
+
 [✶ ata ✶](https://purpleduo.atabook.org/) | [✶ X ✶](https://x.com/zelyonayatochk?s=09) | [✶ tiktok ✶](https://www.tiktok.com/@zelyonayatochk?_t=ZS-90iPnC5gnrj&_r=1)
 
   <img src="https://komarev.com/ghpvc/?username=beefsaladmcsr&color=9C0B3D&style=flat-square&label=✶" />
